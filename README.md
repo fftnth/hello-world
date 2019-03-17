@@ -1,2 +1,2 @@
 # hello-world
-fftnth's Hello World repository
+Every time I think of you, I feel shot right through with a bolt of blue.
